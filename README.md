@@ -1,4 +1,1 @@
-# CMD-X
-A ROBLOX admin script with over 600 commands. Under reformation, V2.0.0 coming soon or something I guess.
-
-[Discord](https://discord.gg/cmd-x-760213934300463217)
+RoClothes a porn script please dont use since its a test
